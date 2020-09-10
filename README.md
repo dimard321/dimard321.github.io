@@ -1,4 +1,4 @@
-Hi there 👋
-I'm Dim-Ard
-My websites:
 
+I'm Dim-Ard
+
+My websites:
